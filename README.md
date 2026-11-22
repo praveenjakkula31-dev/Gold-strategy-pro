@@ -1,1 +1,0 @@
-# Gold-strategy-pro
